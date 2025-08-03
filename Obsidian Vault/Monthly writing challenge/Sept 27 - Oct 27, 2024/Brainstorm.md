@@ -1,0 +1,23 @@
+- plot holes
+	- why cant they just take some seeds to farm? and some for research?
+	- why not just eat some seeds and not all?
+- what is an obstacle they'll run into? or will it just be talking?
+- names
+	- generic names list:
+		- Ruvin jr
+		- Sam
+		- John
+		- Johnny
+		- Jonathan
+		- Jean
+		- Johannes 
+		- Jon
+		- Johnathan
+		- Ren
+		- Tess
+		- Jan
+	Setting
+	- city
+		- ruined\
+		- rubble
+		- 

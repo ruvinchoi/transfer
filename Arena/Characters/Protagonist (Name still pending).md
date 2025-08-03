@@ -1,0 +1,3 @@
+**Concept**
+When they were young their parents went dead leaving them to take care of their sibling(s). they tried working honest methods but when their sibling fell ill they needed to find a new source of income. They apply to and get entered into the [[Arena (Name still pending)]] Bringing in a good amount of income to live more comfortably (middleclass-ish), they grow to love their job, the money, the glory, the feeling they are making their community safer, their sibling(s) cheering from the stands. 
+After a while of working in this role they begin to slowly question if what they are doing is correct, as they go from executing murderers, to thieves, to 'treasoners', to dissenters

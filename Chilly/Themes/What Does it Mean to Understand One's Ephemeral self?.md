@@ -1,0 +1,4 @@
+- Ideas: 
+	- to understand the every-changing, shifting, fundamental core of one's being and continuously understanding this.
+	- Understanding the core constants of one's being despite all change and using it as an anchoring. 
+	- Being able to block out exterior influences of an other's [[Ephemeral]]

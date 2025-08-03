@@ -1,0 +1,1 @@
+I tilt the contents of a sun-warmed can down my throat. The beer smells like petrol and the taste is scarcely an improvement. Stretching my back against the warmed brick of the local library, I 

@@ -1,0 +1,1 @@
+Spirits for geographic elements like mountains, rivers, skies, etc. they act as guardians for their domain. they are linked to their domain and if it is damaged or corrupted or deteriorated then they do as well
